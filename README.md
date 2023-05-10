@@ -2,4 +2,4 @@
 
 You Can see My profile And All About 
 
-contact inhibition is available
+contact info is available
